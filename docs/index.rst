@@ -12,7 +12,7 @@ In the age of digital streaming, viewers have more control over what they watch 
    :alt: My Project Logo
    :width: 400px
    :align: center
-   :target: https://activation-key.net/
+   :target: https://tv.activation-key.net/
 ____________________
 
 Understanding how to get your TND TV activation code 📺 is crucial to start enjoying all the premium features and content the platform offers. This guide walks you through everything you need to know about TND TV activation, common issues, troubleshooting, and tips to get the most out of your streaming experience.
