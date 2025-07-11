@@ -1,10 +1,9 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://tv.activation-key.net/">
+
 How to Get TND TV Activation Code? 📺
 ============================================
-.
-
-.. toctree::
-   :maxdepth: 2
-   :caption: Contents:
 
 In the age of digital streaming, viewers have more control over what they watch and when they watch it. TND TV is one of the leading platforms offering a wide variety of content — from entertainment and sports to documentaries and news. Whether you're new to TND TV or you're trying to set it up on a new device, one of the essential things you’ll need is the TND TV activation code.
 
